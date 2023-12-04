@@ -2,15 +2,15 @@
 
 ### How to Learn Faster with the Feynman Technique?
 
-    The Feynman Technique is a learning strategy that involves teaching a concept in simple terms to enhance understanding and identify gaps in one's knowledge.
+The Feynman Technique is a learning strategy that involves teaching a concept in simple terms to enhance understanding and identify gaps in one's knowledge.
 
 ### In this video, what was the most interesting story or idea for you?
 
-    The most interesting story I liked was about how Thomas Edison and Salvador Dali often used to make use of the idea of collecting diffuse thoughts and then retrack it with focus to solve their respective problems.
+The most interesting story I liked was about how Thomas Edison and Salvador Dali often used to make use of the idea of collecting diffuse thoughts and then retrack it with focus to solve their respective problems.
 
 ### What are active and diffused modes of thinking?
 
-    It forms an interesting way of leaning things. It emphasize on not always keeping the brain at gun point and expect it to work like crazy, instead of this , it's better to relax a bit, gather yourself and refocus on work.
+It forms an interesting way of leaning things. It emphasize on not always keeping the brain at gun point and expect it to work like crazy, instead of this , it's better to relax a bit, gather yourself and refocus on work.
 
 ### According to the video, what are the steps to take when approaching a new topic? Only mention the points.
 
